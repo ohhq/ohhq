@@ -1,5 +1,5 @@
 <h1 align="center">Hi 👋, I'm Brandon</h1>
-<h3 align="center">A 14 years old,trying to learn thing and have fun</h3>
+<h3 align="center">A 14 years old, trying to learn thing and have fun</h3>
 
 <p align="left"> <img src="https://komarev.com/ghpvc/?username=ohgalaxi&label=VIEW!!&color=980eb4&style=flat" alt="ohgalaxi" /> </p>
 
