@@ -10,7 +10,9 @@
 - ⚡ Fun fact **im bisexual 🏳‍🌈**
 
 - 🖥 website <a href="https://feds.lol/link" target="_blank">WEBSITE!</a>
--
+
+- 🖥 website <a href="https://feds.lol/bee" target="_blank">WEBSITE!</a>
+
 <h3 align="left">Connect with me:</h3>
 <p align="left">
 <a href="https://instagram.com/ohgalaxi" target="blank"><img align="center" src="https://raw.githubusercontent.com/rahuldkjain/github-profile-readme-generator/master/src/images/icons/Social/instagram.svg" alt="ohgalaxi" height="30" width="40" /></a>
