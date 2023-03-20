@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **Bouelleet@gmail.com**
 
-- ⚡ Fun fact **im gay 🏳‍🌈**
+- ⚡ Fun fact **im bisexual 🏳‍🌈**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
