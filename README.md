@@ -7,11 +7,10 @@
 
 - 📫 How to reach me **Bouelleet@gmail.com**
 
-- ⚡ Fun fact **im bisexual 🏳‍🌈**
+- ⚡ Fun fact **im gay 🏳‍🌈**
 
-- 🖥 website <a href="https://feds.lol/link" target="_blank">WEBSITE!</a>
+- 🖥 feds.lol <a href="https://feds.lol/link" target="_blank">WEBSITE!</a>
 
-- 🖥 website <a href="https://feds.lol/bee" target="_blank">WEBSITE!</a>
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
