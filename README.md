@@ -7,9 +7,7 @@
 
 - 📫 How to reach me **0hg4lax1@null.net**
 
-- ⚡ Fun fact **im gay 🏳‍🌈**
-
-- 🖥 feds.lol <a href="https://feds.lol/link" target="_blank">WEBSITE!</a>
+- 🖥 feds.lol <a href="https://feds.lol/link" target="_blank">feds.lol!</a>
 
 
 <h3 align="left">Connect with me:</h3>
